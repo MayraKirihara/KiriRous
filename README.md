@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MayraKirihara
-- 👀 I’m interested in cat and coffee 
+- 👀 I’m interested the cat and coffee 
 - 🌱 I’m currently learning drawing 
 - 💞️ I’m looking to collaborate on cats
 - 📫 How to reach me uwu
